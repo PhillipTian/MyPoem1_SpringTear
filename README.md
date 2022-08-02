@@ -5,7 +5,7 @@ Some as a secret admirer.
 Some as a homesick boy.
 
 "Spring, when the tear falls"
-\n 
+
 
 "想在黎明前出走
 推开阻拦的手
